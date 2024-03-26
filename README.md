@@ -5,7 +5,7 @@
 - 📫 How to reach me domdastkz
 - 😄 Pronouns: ...![Designerкзам (2)](https://github.com/Domik94/Domik94/assets/157407004/329b910d-2014-4fb1-a149-d1de4635073e)
 
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I rarely laugh... 
 
 <!---
 Domik94/Domik94 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
