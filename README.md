@@ -13,3 +13,4 @@ You can click the Preview link to take a look at your changes.
 --->
 I'm Damir now I'm going to be a developer here on Python and JavaScript 
 I will exercise control over all actions myself directly 
+D^™IR®©^\/®D333.222.666
